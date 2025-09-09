@@ -1,6 +1,6 @@
-- 👋 Hi, I’m @Noah-SIO
+- 👋 Hi, I’m @Noah-LPMI
 - 👀 I’m interested in technologie and video games
-- 🌱 I’m currently learning BTS SIO SLAM
+- 🌱 I’m currently learning LPMI and BTS SIO SLAM
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me discord/email
 - 😄 Pronouns: he/him
